@@ -1,0 +1,1 @@
+Spaghetti pasta is a long,thin,solid,cylindrical pasta.It is a staple food of the trditional italian cuisine.
